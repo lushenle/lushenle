@@ -12,4 +12,4 @@ Hardworking
 ### 🤠 I also love
 
 - 🎵 Guitar & Drum
-- ✈ Flight
+- ✈ Aviate
